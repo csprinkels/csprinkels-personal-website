@@ -1,1 +1,0 @@
-# csprinkels-personal-website
